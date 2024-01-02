@@ -25,11 +25,11 @@ Throughout its run, the series received critical acclaim, with praise towards it
 
 𝙈𝙖𝙞𝙣 𝘾𝙖𝙨𝙩 𝙊𝙫𝙚𝙧𝙫𝙞𝙚𝙬
 
-Neil Patrick Harris as Count Olaf, a failing actor who is determined to claim the Baudelaire fortune for himself. He is a member of the fire-starting side of the secret organization VFD (Volunteer Fire Department). He has a unibrow and a tattoo resembling an eye on his left ankle, which is frequently used to identify him when he is disguised.
+• Neil Patrick Harris as Count Olaf, a failing actor who is determined to claim the Baudelaire fortune for himself. He is a member of the fire-starting side of the secret organization VFD (Volunteer Fire Department). He has a unibrow and a tattoo resembling an eye on his left ankle, which is frequently used to identify him when he is disguised.
 
 • Patrick Warburton as Lemony Snicket, the narrator and member of VFD who is tasked with explaining the events during the lives of the Baudelaires.
 
-• Malina Weissman as Violet Baudelaire,[7] the eldest Baudelaire sibling, an inventor and talented mechanic.[8]
+• Malina Weissman as Violet Baudelaire, the eldest Baudelaire sibling, an inventor and talented mechanic.
 
 •Louis Hynes as Klaus Baudelaire, the middle Baudelaire child, interested in literature and books.
 
@@ -39,7 +39,7 @@ Neil Patrick Harris as Count Olaf, a failing actor who is determined to claim th
 
 • Lucy Punch as Esmé Squalor, a glamorous, wealthy financial advisor, who becomes an ally and love interest for Count Olaf. (seasons 2–3)
 
-• Dylan Kingwell as Duncan and Quigley Quagmire, Isadora's brothers. Duncan is a keen journalist,[14] while Quigley is Isadora and Duncan's long-lost sibling who was thought dead in the fire at the Quagmire home. (guest season 1; main seasons 2–3)
+• Dylan Kingwell as Duncan and Quigley Quagmire, Isadora's brothers. Duncan is a keen journalist, while Quigley is Isadora and Duncan's long-lost sibling who was thought dead in the fire at the Quagmire home. (guest season 1; main seasons 2–3)
 
 • Avi Lake as Isadora Quagmire, Duncan and Quigley's sister who loves writing poetry. (Main season 2; guest seasons 1 & 3)
 
